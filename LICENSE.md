@@ -1,4 +1,4 @@
-# 
+# Elite CorelDRAW presets for Mac OS | Ultimate CorelDRAW presets for PC Windows. Featuring master-pages and version-history — optimized for maximum performance on every platform.
 
 
 
